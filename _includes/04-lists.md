@@ -1,0 +1,3 @@
+- Beer 🍺
+- Kids 🧒
+- Cottage 🏡
